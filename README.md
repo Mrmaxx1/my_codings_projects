@@ -1,1 +1,0 @@
-# my_codings_projects
